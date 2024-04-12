@@ -18,15 +18,16 @@ hola mundo (Arantxa)
 Tengo ganas de un esquite (Monse)
 Holaaa:)
 Sarahi Aixa 
+
 Vete ya
 Si no encuentras motivos
 Para seguir conmigo
 ¿Para qué continuar?
-
 Es mejor terminar como amigos
 Que ser como enemigos
 Esperando atacar
 Nombre: Celso Jiménez
+
 edit (ado)
 Ewasa (Adrián)
 Como quiera ni me acepta (eve)
